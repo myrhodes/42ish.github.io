@@ -9,7 +9,7 @@ My TB x-ray was conducted on 9 July in Islamabad, and it cost PKR 4250.
 All this expense is covered by the scholars themselves. Visas of scholars have gotten delayed in the past due to confusion over this point.
 
 **Points of interest:**
-- The photo that needs to be submitted with the visa application has to follow the strict guidelines given on the UKBA website. A friend had snapped my photo that followed the guidelines to the T, but I forgot that the pictures need to be printed on matte, not glossy paper. Thankfully I had the soft copy of the photo in my email and got it printed on matte paper from a shop near the Gerry's office.
+The photo that needs to be submitted with the visa application has to follow the strict guidelines given on the UKBA website. A friend had snapped my photo that followed the guidelines to the T, but I forgot that the pictures need to be printed on matte, not glossy paper. Thankfully I had the soft copy of the photo in my email and got it printed on matte paper from a shop near the Gerry's office.
 
 The TB certificate has to be collected by the candidate themselves. The Islamabad office of IOM is better and the staff was very nice. 
 
