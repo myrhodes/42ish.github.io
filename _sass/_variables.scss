@@ -15,9 +15,9 @@ $lightGray: #eee;
 $white: #fff;
 
 // Font stacks
-@import url('https://fonts.googleapis.com/css?family=Noto+Sans:400,700|Noto+Serif:400,400i');
-$helvetica: "Noto Sans", Helvetica, Arial, sans-serif;
-$helveticaNeue: "Noto Serif", "Helvetica Neue", Helvetica, Arial, serif;
+@import url('https://fonts.googleapis.com/css?family=PT+Sans:400,700|PT+Serif|Noto+Sans:400,700|Noto+Serif:400,400i');
+$helvetica: "PT Sans", "Noto Sans", Helvetica, Arial, sans-serif;
+$helveticaNeue: "PT Serif", "Noto Serif", "Helvetica Neue", Helvetica, Arial, serif;
 $georgia: Georgia, serif;
 
 // Mobile breakpoints
