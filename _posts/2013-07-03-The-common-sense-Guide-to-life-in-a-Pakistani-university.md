@@ -29,6 +29,6 @@ Celebrating birthdays: Be warned, birthdays in PNEC are a loud and rough affair,
 
 Keep your PETER under control: PETER = personal entertainment through electronic resources. Save on your phone bill and get some good night sleep. 
 
-Keep your FYP in mind: A wise senior once said that "FYP does NOT mean Final Year Phuddu". Enough said.
+Keep your FYP in mind: FYP = Final Year Project. A wise senior once said that "FYP does NOT mean Final Year Phuddu". Enough said.
 
 Always remember that university life is a unique time to develop skills and good habits for life, make sure that you don't waste it. Good luck to you.
