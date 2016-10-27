@@ -1,6 +1,6 @@
 ---
 layout: post
-title:
+title: Catching Fireflies in Cowley
 ---
 
 31st Oct, 2012 was my first Halloween in a country which actually celebrates it, and in typical Oxford fashion, I was faced with the option of being at two equally enticing places at once. 
