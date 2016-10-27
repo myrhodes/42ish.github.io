@@ -6,7 +6,7 @@ title: A brief history of my Rhodes application process
 This is a brief timeline of things so far, detailed posts for some items may follow at later dates.
 31 Aug, 2011 - Submitted Rhodes application
 15 Nov, 2011 - Received call from Mr. Agha Afzal Hussain to come to Islamabad for Rhodes interview
-17 Nov, 2011 - Informal dinner with judges, Rhodes alumni, academicians, and other Rhodes finalists  
+17 Nov, 2011 - Informal dinner with judges, Rhodes alumni, academicians, and other Rhodes finalists
 18 Nov, 2011 - Rhodes interview *Got Selected*
 08 Dec, 2011 - Started to receive correspondence from Mary Eaton, with instructions for applying to Oxford  
 22 Dec, 2011 - Started Oxford Graduate Admissions application  
