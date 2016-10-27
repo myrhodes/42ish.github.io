@@ -4,12 +4,13 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+I am Syed Ali Asad Rizvi, I am doing a PhD in the Machine Learning Research Group at University of Oxford. 
+I was awarded the Rhodes scholarship from Pakistan in 2012. At Oxford, I am part of the Oxford-Man Institute of Quantitative Finance.
+I am affiliated with Brasenose College. 
 
-### More Information
-
-A place to include any other types of information that you'd like to include about yourself.
+This blog is a way for me to share my experiences as a Rhodes scholars with others, especially Pakistani students who are trying to apply for this and other scholarships. 
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+syed.rizvi (at) gmx.com
+[@saa_rizvi](https://twitter.com/saa_rizvi)
