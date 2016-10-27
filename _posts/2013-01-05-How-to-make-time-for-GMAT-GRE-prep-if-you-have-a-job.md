@@ -1,6 +1,6 @@
 ---
 layout: post
-title: How to make time for GMAT or GRE prep if you have a job
+title: How to make time for GMAT or GRE prep if you have a job?
 ---
 
 If you are looking for a short cut, you won't find it here.
