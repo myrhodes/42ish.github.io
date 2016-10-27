@@ -1,0 +1,34 @@
+---
+layout: post
+title: The Rhodes interview
+---
+
+My Rhodes interview took place on 18 Nov, 2011 at the old FAST building in Rawalpindi. I got there at around 8:30 AM and the interviews started at 9. All the other candidates were there and we sat in the foyer outside the interview room. 
+
+As soon as I arrived, I observed that all the other candidates had brought laptops with them and myriad folders, this made me queasy and I thought that maybe I had forgotten to bring along some important documentation or something or perhaps we were supposed to prepare a presentation to give to the judges, but thankfully that was not the case and everyone had just brought their laptops to pass the time (mostly check facebook). Each candidate had a roughly 50 mins long interview, followed by about a 10 mins break, after which the next candidate was called in. All of us were jittery and this quickly led to us becoming gossipy and we were soon laughing at ourselves. The first candidate to go in was Economics girl, after her Professor dude, followed by Doctor dude, then Philosophy Girl, then me, after me Computer dude, and last was Architect girl. I might be off the mark on some details about the other candidates' interviews but Economics girl's interview seemed to go pretty smooth, Professor dude seemed to be a bit unsure about questions that were out of his academic domain, Doctor dude came out exuding an aura of delight, which added to the stress for the rest of us, Philosophy girl tripped over a question of religious controversy and had to spend a considerable amount of time trying to explain it to the judges, we all tried to soothe her, but it was of little avail, Computer dude's ideal personality was a slightly controversial religious figure and this seemed to direct most of his interview, Architect girl's interview went smooth.
+During lunch break we had biryani and kebabs from Savour, and the Isb/Rwp candidates told me that Savour food was really popular there, but I failed to see (taste) what the hoopla is about. Biryani in Karachi rocks any day.
+My interview started around 2:30 PM. The interview room was a big conference room with a big rectangular table dividing it into two sections. The whole panel of eight judges was sitting on one side of a long table while I was alone at the other side. I cannot recall the names of all the judges, but I remember that Wasim Sajjad sat in the middle to his left was Shaukat Hameed Khan, beside him was the British High Commissioner, at my extreme right was Cyril Almeida and to my extreme left was Babar Sattar. There was a lady sitting beside Cyril. Mr Justice Asif Saeed Khan Khosa was also part of the selection committee.
+The interviewers ask questions about everything that you have mentioned in your personal statement in particular and your application in general. They ask detailed questions about your future plans and also offer advice about them. The panel doesn't flinch in pointing out if they think you have given an answer that is completely amiss. The questions cover a broad range of topics, from global politics and economics to questions about local religious conflicts, from your proposed subject to your favourite sport. The panel drills you at times with tougher and tougher questions to see if you can handle conflict of opinion and they since they are a very distinguished group of people from all fields of life therefore it is impossible to feed them half baked answers. At one point I had to defend my choice of never having read a newspaper in the last 6 years, or never watching a news channel with interest. There are no real right or wrong answers, but the judges do want to know if you have formed an informed opinion about the topic and are willing to defend that opinion in a civil and confident manner. You should also know when to see flaws in your logic and be willing to accept that. At two points at least in my interview, I had to accept that I did not have sufficient knowledge on the subject to make an informed judgement about the issue. It went something like this:
+
+"What is the difference between Afghan Taliban and Pakistan Taliban?"
+"Sir I believe that the true difference lies in our perception, what one might view as a terrorist might be another persons hero and therefore we should be willing to accept this fundamental flaw in our perception"
+"No, there is a definite difference but you seem unaware of it"
+I was dumbfounded by this remark but I managed to say, "Ok Sir, I will look into it".
+
+At another point we got into a detailed argument regarding the domino uprisings in the middle east, after being drilled about the topic for around 10 minutes Cyril asked me:
+
+"Ali tell me frankly, what are these factors for the uprisings that you seem to be hinting at?"
+"Cyril, I believe I will have to step back at this point and accept that I lack sufficient knowledge to give an informed answer to your question"
+At this point Mr. Khosa  gently explained to me that it was the influx of a large number of foreign educated nationals in the middle east that led to a critical mass of dissonance, resulting in these domino uprisings.
+
+The interviewers gently challenge your opinions and see if you can handle that maturely and defend your convictions.
+There are sprinkles of humour too as the panel tries to make the candidate comfortable through out the interview. At the very end of my interview, Mr. Wasim Sajjad asked me:
+"Ali, did you ever had an American teacher?"
+"No, Sir"
+"Then where did you get your accent from?"
+I was surprised by this and an "Oh my God!" slipped from my mouth and he laughed and said to Mr. Shaukat, "He got it from God!"
+
+After finishing my interview, I felt a huge relief and could finally see the humour of our panicked states. Sometime during all the waiting, we all decided that whoever gets selected will treat the rest at Serena Hotel.
+The interviews finished at around 6 PM. Mr. Babar Sattar came out after the final deliberation, which lasted 20 mins and told us that, "Every year the pool of candidates is very talented and this year you guys made our job even more difficult, but there has to one final candidate and this year the panel has selected Mr. Syed Ali Asad Rizvi". I had a huge surge of adrenaline, suddenly it was as if I had become weightless, I glided around the hall, shaking the hands of my fellow candidates, accepting their congratulations, and was taken to the conference room one more time to meet the panel. The panel gave me their best wishes and told me to start reading newspapers!
+
+I informed my family and friends, my parents broke down into tears. Later, all seven of us went to Sarena and enjoyed the buffet there, after which I took a walk alone in the Hotel's lawn. It was a beautiful winter night filled with the smell of red roses.
