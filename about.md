@@ -13,4 +13,5 @@ This blog is a way for me to share my experiences as a Rhodes scholars with othe
 ### Contact me
 
 syed.rizvi (at) gmx.com
+
 [@saa_rizvi](https://twitter.com/saa_rizvi)
