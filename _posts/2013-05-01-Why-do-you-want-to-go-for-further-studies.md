@@ -3,7 +3,9 @@ layout: post
 title: Why do you want to go for further studies?
 ---
 
-Alice: I was just wondering if you could help me find my way.  Cheshire Cat: Well that depends on where you want to get to.  Alice: Oh, it really doesn't matter, as long as...  
+Alice: I was just wondering if you could help me find my way.  
+Cheshire Cat: Well that depends on where you want to get to.  
+Alice: Oh, it really doesn't matter, as long as...  
 Cheshire Cat: Then it really doesn't matter which way you go.
 
 It is very important that you are aware of your truest intentions for embarking on a higher education program, because this knowledge will make the process of finding your ideal university/country/scholarship much more easier. If you don't know your motive then it doesn't matter where you end up. In this post I want to summarise some of the major motivators that Pakistani students seem to have and then I outline how to go about your search for a university accordingly. For all purposes, aim high, give yourself sufficient time to conduct your research and planning, and believe that you can achieve your goals, if you don't believe that you can, then no one has reason to believe otherwise.
